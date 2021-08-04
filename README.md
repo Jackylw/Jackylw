@@ -12,4 +12,4 @@
 - 📫 How to reach me: ...<br/>
 - 😄 Pronouns: ...<br/>
 - ⚡ Fun fact: ...
-**<a>**
+
